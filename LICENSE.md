@@ -1,4 +1,4 @@
-# 
+# Avancé 30+ AI Projects at UQAC extensions. Avec entraînement de modèles et sécurité de l'IA — optimisé pour des performances maximales.
 
 
 
